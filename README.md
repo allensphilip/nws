@@ -15,4 +15,4 @@ Level 2: https://gosharpener.com/posts/296441
 
 
 
-Prsntation: https://www.canva.com/design/DAF7D3FNWpU/72NqUfZjRdRD5nFQrpkdrQ/view?utm_content=DAF7D3FNWpU&utm_campaign=designshare&utm_medium=link&utm_source=editor
+Prsntation: [https://www.canva.com/design/DAF7D3FNWpU/72NqUfZjRdRD5nFQrpkdrQ/view?utm_content=DAF7D3FNWpU&utm_campaign=designshare&utm_medium=link&utm_source=editor](http://surl.li/pznvm)http://surl.li/pznvm
